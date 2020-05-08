@@ -1,1 +1,0 @@
-# DeVAnJiL.github.io
